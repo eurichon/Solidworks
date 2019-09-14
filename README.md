@@ -1,0 +1,1 @@
+Solidworks files of various parts as well as final assemblies
